@@ -1,2 +1,2 @@
 
-![CiberseguridadPromo](https://user-images.githubusercontent.com/20259832/139924021-0e262dd9-b467-4171-8e11-b6f76a5f9324.png)
+<img width="1230" alt="Ciberseguridad (1 - Teams promo)" src="https://user-images.githubusercontent.com/20259832/139926877-fc62b8df-35d4-4446-bbad-9459af70afaa.png">
